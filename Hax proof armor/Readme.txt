@@ -1,0 +1,1 @@
+Hi it is the programer if it has glitches wait for the next update i just made it so this is version 0.1 thanks have a good day
